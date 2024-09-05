@@ -1,1 +1,1 @@
-the EARTH and SUN
+the EARTH and the SUN
